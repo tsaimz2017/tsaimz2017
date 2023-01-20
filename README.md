@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about what to eat/play in bay area
 - 📫 How to reach me: mingzhitsai@gmail.com
 - 😄 Pronouns: She/her/hers
-- ⚡ Fun fact: I dont eat ketchup
+- ⚡ Fun fact: Never eat ketchup
 -->
